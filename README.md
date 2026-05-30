@@ -108,7 +108,7 @@ Perubahan penting akan diinformasikan kepada pengguna.
 Jika ada pertanyaan terkait privasi:
 
 **Tim StudyVerse**  
-Email: support@studyverse.ai
+Email: raivonlimits@gmail.com
 
 ---
 
